@@ -12,7 +12,7 @@ I've got a couple of projects I'm proud of, but my favorite is **LandLink** — 
 
 I'm currently pursuing my B.Tech in IT, and picking up real-world skills through internships along the way.
 
-If you want to connect or collaborate, reach out on [LinkedIn](https://www.linkedin.com/in/m-boominathan-611401306)!
+If you want to connect or collaborate, reach out on [LinkedIn](https://www.linkedin.com/in/boominathan-m09052006/)!
 
 **Fun Facts:**
 - I'm into debugging more than I'd like to admit 😅
